@@ -1,3 +1,0 @@
-PC
-DESKTOP-EN2JD07 
-Thursday, June 12, 2025  3:03:49 PM
